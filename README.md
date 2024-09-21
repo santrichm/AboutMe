@@ -33,7 +33,7 @@ I'm constantly expanding my skill set and exploring new technologies to enhance 
 
 I'm always open to discussing new projects, innovative ideas, or opportunities to contribute to exciting developments. Feel free to reach out!
 
-here is my Telegram username: (@Santrich)[https://t.me/Santrich]
+here is my Telegram username: [@Santrich](https://t.me/Santrich)
 
 ---
 
